@@ -15,3 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 become the vision of the mindseye eye and carry the flame to the fire
+do not wait for the fire to carry the flame to you
